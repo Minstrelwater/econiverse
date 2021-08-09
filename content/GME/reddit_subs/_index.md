@@ -2,6 +2,11 @@ Here is a list of subs that are good resources for information about the situati
 
 
 {{< toc >}}
+## Superstonk
+
+[Superstonk](https://www.reddit.com/r/Superstonk/)
+
+A place for theoretical discussions about business and stocks - specifically Gamestop Stock ($GME). Opinions and memes welcome. None of this is financial advice. Stay stonky, San Diago.
 
 ## Autisticats
 
@@ -27,6 +32,24 @@ All is flair in profits & losses. Success investing starts with self investing. 
 
 Gamestop ($GME) Stock: 🚀 Get Ready For The Biggest Short Squeeze Of Our Lifetime 🚀
 
+## DDIntoGME
+
+[DDIntoGME](https://www.reddit.com/r/DDintoGME/)
+
+Deep Dive into GME is dedicated to the provision & discussion of truthful information related to GameStop stock ($GME)
+
+## GMEJungle
+
+[GMEJungle](https://www.reddit.com/r/GMEJungle/)
+
+A safe place for apes who like the stock $GME. Naked shorts never closed, but they must.
+
+## DeepFuckingValue
+
+[DeepFuckingValue](https://www.reddit.com/r/DeepFuckingValue/)
+
+Official Discord: https://discord.gg/DeepFuckingValue _________________________ "It was never about the carrot" 🥕
+
 ## GME2
 
 [GME2](https://www.reddit.com/r/GME2/)
@@ -50,3 +73,26 @@ The tradespotting subreddit
 [MOASS](https://www.reddit.com/r/MOASS/)
 
 This is an Ape Fallout Shelter. See below for where to travel from here. Profit to the People. Power to the Players. 💎✊
+
+## GMECapitalists
+
+[GMECapitalists](https://www.reddit.com/r/gme_capitalists/)
+
+GME Capitalists of the MOASS | with ato & bEAc In 🚀 we trust🗽| Zen Apes 🦍 | Ninja Ants 🐜 *** idiosyncratic risk 💪 *** not financial advice ***
+
+## GamestopStock
+
+[GamestopStock](https://www.reddit.com/r/Gamestopstock/)
+
+The stock is this still shorted more then 100% the real sqeeze did not happen yet. BUY AND HOLD
+
+## GMEArchive
+
+[GMEArchive](https://www.reddit.com/r/gmearchive/)
+
+A subreddit dedicated to backing up DD, News, Posts and Discussions from /r/GME, /r/Superstonk and /r/wallstreetbets (as well as other related subs. ***SORT BY NEW FOR MOST RECENT INFO*** If you believe there is important information, news or DD that I have missed reposting, please PM (/u/lordboyderson). *Please note that I am not the author or original poster of the DD found here unless stated otherwise. All rightful Authors are credited in the post with links to the original works.*
+
+
+
+
+

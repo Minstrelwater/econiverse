@@ -4,7 +4,7 @@ Here is a list of subs that are good resources for information about the situati
 {{< toc >}}
 
 ## Autisticats
-
+test
 [Autisticats](https://www.reddit.com/r/Autisticats/)
 
 A community for GameStop stock owners, who enjoy learning about the larger picture, to discuss whatever they want, uncensored! Academic discussion on every topic is encouraged but anything that is hateful will not be tolerated. Please review the rule list for an explanation of what this means before posting or commenting.
